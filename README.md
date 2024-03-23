@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Sp3ctralZ3r0 Also Known As Alone Or Ashley
+- 👀 I’m interested in Psyche Engine And Unreal Engine
+- 🌱 I’m currently learning ICT And Modelling In Blender 
+- 💞️ I’m looking to collaborate On Nothing For Now
+- 📫 How to reach me Don't 
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I'm A Failure :3
